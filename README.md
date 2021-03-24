@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Dirty-Dirk
+- 🌱 I’m a founding father of ThemePunch
+- 📫 dirk@themepunch.com
